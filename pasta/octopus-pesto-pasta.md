@@ -1,16 +1,18 @@
 ## Ingredients
 
-- 5g Korean dried seaweed, crumbled
-- 4oz dehydrated sliced porcini mushrooms
-- 1tbsp freeze-dried shallots
-- 1lb dried pasta of preferred shape
-- 6oz Basil pesto ([DeLallo](https://www.amazon.com/Delallo-Simply-Pesto-Traditional-Basil/dp/B017KYJ5P4) jarred or fresh preferred)
-- 4oz tin pulpo octopus ([Matiz](https://www.amazon.com/Matiz-Gallego-Pulpo-Octopus-Olive/dp/B000N3DPME) preferred)
-- 1oz lobster juice, optional ([Bar Harbor](https://www.amazon.com/Bar-Harbor-Juice-Maine-Lobster/dp/B00L4A6IEW/) preferred)
-- 2tbsp brined capers
-- 3tbsp lemon juice
-- Parmigiano reggiano, to taste
-- Ground black pepper, to taste
+| Qty | Ingredient |
+| -------- | -------- |
+| 5 g. | Korean dried seaweed, crumbled |
+| 4 oz. | dehydrated sliced porcini mushrooms |
+| 1 tbsp. | freeze-dried shallots |
+| 1 lb. | dried pasta of preferred shape |
+| 6 oz. | Basil pesto ([DeLallo](https://www.amazon.com/Delallo-Simply-Pesto-Traditional-Basil/dp/B017KYJ5P4) jarred or fresh preferred) |
+| 4 oz. | tinned pulpo octopus ([Matiz](https://www.amazon.com/Matiz-Gallego-Pulpo-Octopus-Olive/dp/B000N3DPME) preferred) |
+| 1 oz. | lobster juice, optional ([Bar Harbor](https://www.amazon.com/Bar-Harbor-Juice-Maine-Lobster/dp/B00L4A6IEW/) preferred) |
+| 2 tbsp. | brined capers |
+| 3 tbsp. | lemon juice |
+| taste | Parmigiano reggiano |
+| taste | Ground black pepper |
 
 ## Instructions
 
