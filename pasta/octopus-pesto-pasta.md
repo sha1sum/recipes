@@ -12,7 +12,6 @@
 - Parmigiano reggiano, to taste
 - Ground black pepper, to taste
 
-
 ## Instructions
 
 1. Crumble seaweed sheets into a bowl and add dried mushrooms and shallots. Add enough water to cover and leave until sufficiently reconstituted, approximately 20 minutes.
