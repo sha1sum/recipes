@@ -1,12 +1,14 @@
 ## Ingredients
 
-- 8 oz. Cremini/baby bella mushrooms or other mushroom mix, chopped into desired size
-- Half stick (4 tbsp.) butter
-- 2 garlic cloves, minced
-- 1 medium shallot, finely chopped
-- Small amount of dry wine (red or white both work depending on what you are serving it with)
-- 1 c. heavy cream
-- Parsley leaves to taste
+| Qty | Ingredient |
+| -------- | -------- |
+| 8 oz. | Cremini/baby bella mushrooms or other mushroom mix, chopped into desired size |
+| ½ stick (4 tbsp.) | butter |
+| 2 | garlic cloves, minced |
+| 1 | medium shallot, finely chopped |
+ taste | Dry wine (red or white both work depending on what you are serving it with) |
+| 1 c. | heavy cream |
+| taste | Parsley leaves |
 
 ## Instructions
 
