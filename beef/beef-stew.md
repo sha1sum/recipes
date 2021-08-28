@@ -1,20 +1,22 @@
 ## Ingredients
 
-- 2 lb. Chuck roast, trimmed, sliced into ¾" cubes
-- ½ c. Vegetable oil
-- 6-8 Garlic cloves, peeled and slivered
-- Around 2-3 lbs. Yellow onions, sliced into the desired size
-- 1 bottle Light beer
-- 1 gal. Homemade chicken broth/light stock (this makes a huge difference)
-- ¼ c. Soy sauce
-- 1 tbsp. Anchovy paste (or about 3-4 fillets smashed into a paste)
-- 2 lbs. Carrots, sliced into 1-1½" chunks (pre-cut baby carrots are fine and prevents a lot of work)
-- 1½ lbs. Dutch fingerling potatoes, washed
-- 1 lb. Porcini mushrooms, sliced (or about 6-8 ounces dried Porcini)
-- About 1 c. frozen peas (I go by sight on this)
-- Dried thyme, oregano, and rosemary, to taste
-- All purpose flour enough to coat sliced beef
-- Salt and black pepper, to taste
+| Qty | Ingredient |
+| -------- | -------- |
+| 2 lb. | Chuck roast, trimmed, sliced into ¾" cubes |
+| ½ c. | Vegetable oil |
+| 6-8 | Garlic cloves, peeled and slivered |
+| ~2-3 lbs. | Yellow onions, sliced into the desired size |
+| 1 bottle | Light beer |
+| 1 gal. | Homemade chicken broth/light stock (this makes a huge difference) |
+| ¼ c. | Soy sauce |
+| 1 tbsp. | Anchovy paste (or about 3-4 fillets smashed into a paste) |
+| 2 lbs. | Carrots, sliced into 1-1½" chunks (pre-cut baby carrots are fine and prevents a lot of work) |
+| 1½ lbs. | Dutch fingerling potatoes, washed |
+| 1 lb. | Porcini mushrooms, sliced (or about 6-8 ounces dried Porcini) |
+| ~1 c. | Frozen peas (I go by sight on this) |
+| taste | Dried thyme, oregano, and rosemary |
+| ~1 c. | All purpose flour enough to coat sliced beef |
+| taste | Salt and black pepper |
 
 ## Instructions
 
