@@ -1,10 +1,12 @@
 ## Ingredients
 
-- 3 1½ lb thick-cut pork loin rib chops
-- 1 9 oz jar applebutter (such as Dickinson's)
-- 1 stick unsalted butter
-- ½ oz fresh sage leaves
-- 4 oz porcini mushrooms, sliced
+| Qty | Ingredient |
+| -------- | -------- |
+| 3 1½ lb. | thick-cut pork loin rib chops |
+| 1 (9 oz.) | jar applebutter (such as Dickinson's) |
+| 1 stick | unsalted butter |
+| ½ oz. | fresh sage leaves |
+| 4 oz. | porcini mushrooms, sliced |
 
 ## Instructions
 
