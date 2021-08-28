@@ -1,4 +1,4 @@
-Ingredients:
+## Ingredients
 
 - 8 oz. Cremini/baby bella mushrooms or other mushroom mix, chopped into desired size
 - Half stick (4 tbsp.) butter
@@ -8,7 +8,7 @@ Ingredients:
 - 1 c. heavy cream
 - Parsley leaves to taste
 
-Instructions:
+## Instructions
 
 1. Melt half of the butter (so about 2 tbsp.) over medium heat until done foaming
 2. Add garlic and shallot, sauteing until fragrant
