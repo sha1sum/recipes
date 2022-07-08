@@ -14,7 +14,7 @@
 2. Using peanut or other neutral oil with a high smoke point, sear pork chops on all sides.
 3. While pork chops are searing, in a medium saucepan, melt butter over medium-low heat until foaming. Add torn sage leaves and applebutter then stir. Turn off heat.
 4. Place pork chops on a rack in a rimmed baking sheet. Using about ⅓rd of the applebutter mixture, spoon equal amounts over the top of each pork chop.
-5. Roast pork chops for until glaze is bubbling and caramelized, around 20 minutes.
+5. Roast pork chops until glaze is bubbling and caramelized, around 20 minutes.
 7. Remove pork chops, then flip and spoon another ⅓rd of the mixture over the top of each pork chop.
 8. Place pork chops back in the oven and continue to roast until internal temperature of the thickest part of each pork chop reaches 145°F.
 9. In remaining applebutter mixture, cook mushrooms over medium low heat.
