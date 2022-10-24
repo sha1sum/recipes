@@ -14,7 +14,7 @@ Sliding your finger in between the skin and the meat will allow you to detach th
 
 ### Dry it well
 
-One would normally think that this is the opposite of what's wanted; dry chicken is not what you want to put in your mouth, right? But the up-front drying leads to better, moister chicken in the end. I'm not sure if I ever knew _why_ exactly this is the case, but it most definitely is true. If I had to venture a guess, I would say that it likely has to do with the osmosis during the dry brining (that will be be doing next).
+One would normally think that this is the opposite of what's wanted; dry chicken is not what you want to put in your mouth, right? But the up-front drying leads to better, moister chicken in the end. I'm not sure if I ever knew _why_ exactly this is the case, but it most definitely is true. If I had to venture a guess, I would say that it likely has to do with the osmosis during the dry brining (that we will be doing next).
 
 To dry the bird I usually run twine under the wings, tie the ends of the twine together, forming a loop, and hang it over my sink for about an hour to let it drain out. Over this period I hear a steady _drip, drip, drip_ of liquid hitting the sink bottom that slows down over time. Not knowing how your kitchen is laid out, you may have to improvise another way of hanging it.
 
