@@ -2,7 +2,7 @@
 
 | Qty | Ingredient |
 | -------- | -------- |
-| 2 lb. | Chuck roast, trimmed, sliced into ¾" cubes |
+| 2 lb. | Chuck roast, trimmed, sliced into 1½" cubes |
 | ½ c. | Vegetable oil |
 | 6-8 | Garlic cloves, peeled and slivered |
 | ~2-3 lbs. | Yellow onions, sliced into the desired size |
