@@ -28,7 +28,7 @@
 5. Add beef to the pot in batches to ensure that the oil stays hot, mixing frequently to ensure even browning.
 6. Once meat is slightly browned, add the onion and cook until the onions just begin to soften.
 7. Add the bottle of beer and stir once. Allow the beer to to cook until it stops creating foam.
-8. Add the chicken stock, carrots, anchovy paste, and soy sauce. Stir and raise heat to high until the mixture is about to reach a boil.
+8. Add the chicken stock, carrots, anchovy paste, marmite, and soy sauce. Stir and raise heat to high until the mixture is about to reach a boil.
 9. Reduce heat to a simmer and stir in dried herbs and pepper a little at a time, leaving a couple of minutes in between tastes (to allow the flavor to incorporate into the liquid) and adding more if necessary.
 10. Allow the mixture to cook until carrots slide easily off of a fork.
 11. Add the potatoes and mushrooms and cook until the potatoes also slide easily off of a fork. You may need to add more stock or water to cover the mixture.
