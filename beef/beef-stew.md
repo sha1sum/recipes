@@ -10,6 +10,7 @@
 | 1 gal. | Homemade chicken broth/light stock (this makes a huge difference) |
 | ¼ c. | Soy sauce |
 | 1 tbsp. | Anchovy paste (or about 3-4 fillets smashed into a paste) |
+| ¾ tsp. | Marmite (or equivalent nutritional yeast aka "nooch") |
 | 2 lbs. | Carrots, sliced into 1-1½" chunks (pre-cut baby carrots are fine and prevents a lot of work) |
 | 1½ lbs. | Dutch fingerling potatoes, washed |
 | 1 lb. | Porcini mushrooms, sliced (or about 6-8 ounces dried Porcini) |
