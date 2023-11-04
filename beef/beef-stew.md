@@ -33,6 +33,6 @@
 10. Allow the mixture to cook until carrots slide easily off of a fork.
 11. Add the potatoes and mushrooms and cook until the potatoes also slide easily off of a fork. You may need to add more stock or water to cover the mixture.
 12. At this point it may be necessary to taste the liquid again for seasoning, adding more if necessary.
-12. With an immersion blender, puree some of the vegetables in the pot, thickening to the desired consistency. You can also remove a little at a time from the pot with a bit of liquid and blend/process if desired.
-13. Add frozen peas and allow to cook until peas are tender. Serve.
+13. With an immersion blender, puree some of the vegetables in the pot, thickening to the desired consistency. You can also remove a little at a time from the pot with a bit of liquid and blend/process if desired.
+14. Add frozen peas and allow to cook until peas are tender. Serve.
 
